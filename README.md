@@ -9,6 +9,7 @@ Explore the world with Destination Daring – your go-to travel blog for guides,
 
 - 🏔️ Manali Travel Guide
   https://www.daringdestinations.com/Discover-the-magic-of-manali
+https://www.daringdestinations.com/2025/05/most-beautiful-destinations-for-summer.html
 
 - 🌊 Niagara Falls Experience
   https://www.daringdestinations.com
