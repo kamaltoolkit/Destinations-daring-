@@ -14,7 +14,7 @@ https://www.daringdestinations.com/2025/05/most-beautiful-destinations-for-summe
   https://www.daringdestinations.com
 
  Vancouver travel guide 
- Best places to visit https://www.daringdestinations.com/2026/04/vancouver-travel-guide-2026-where.html
+ Best places to visit https://www.daringdestinations.com/2026/04/vancouver-travel-guide-2026.html
 
 Europe Tour at low Budget Dram trip under  ₹150000
 https://www.daringdestinations.com/2026/02/europe-tour-at-low-budget.html
