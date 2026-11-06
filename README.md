@@ -21,7 +21,7 @@ Europe Tour at low Budget Dram trip under  ₹150000
 https://www.daringdestinations.com/2026/02/europe-tour-at-low-budget.html
 
 planning a spiritual trip
-https://www.daringdestinations.com/2025/09/shri-mata-vaishnodevi-yara-guideline.html
+https://www.daringdestinations.com/2025/09/shri-mata-vaishnodevi-yatra-guideline.html
 
  What You’ll Find Here
 
